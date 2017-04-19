@@ -1,2 +1,2 @@
 # MyLitteleGarden
-Try to raise some flower~yoho~~ o(*￣▽￣*)ブ
+Welcome! Try to raise some flowers~yoho~~ o(*￣▽￣*)ブ
